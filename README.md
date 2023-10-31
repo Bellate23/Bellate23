@@ -1,4 +1,4 @@
-### Hi there 👋
+### Ta comigo ta com Deus, O GLORIA!!!✨
 
 <!--
 **Bellate23/Bellate23** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
